@@ -1,1 +1,0 @@
-# phd-report-images
